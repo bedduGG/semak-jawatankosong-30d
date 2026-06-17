@@ -1,0 +1,1 @@
+# semak-jawatankosong-30d
